@@ -1,2 +1,2 @@
 # Daily
-Damn
+Damn, I am new to this
